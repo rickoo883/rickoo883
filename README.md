@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @richid390
 - 👀 I’m interested in you
 - 🌱 I’m currently learning trading 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on trading...
 - 📫 How to reach me dm
-- 😄 Pronouns: ...
+- 😄 Pronouns: without money nothing can do
 - ⚡ Fun fact: me and you can make it work
 
 <!---
